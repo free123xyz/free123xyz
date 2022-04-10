@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @free123xyz
 - 👀 I’m interested in ...Changing the world for the greater Good!
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+- 🌱 I’m currently learning ...alot about life.
+- 💞️ I’m looking to collaborate on ...crypto projects. 
 - 📫 How to reach me ...
 
 <!---
